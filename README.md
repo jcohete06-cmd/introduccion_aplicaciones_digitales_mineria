@@ -1,0 +1,2 @@
+# introduccion_aplicaciones_digitales_mineria
+CUCHUYRUI_ELIAS_JPRC_NI43101
